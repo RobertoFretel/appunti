@@ -1,0 +1,81 @@
+
+Dopo il *Congresso di Vienna* (1814 - 1815) **l'Italia era tornata ad essere divisa in molti stati sottomessi nella maggior parte dall'Impero Austriaco**. Solo il *Regno di Sardegna* era indipendente.
+
+> Con i *Congresso di Vienna* si cercò di tornare allo stato precedente alla rivoluzione francese, ma  ciò era impossibile, infatti in tutta Europa si formarono diverse organizzazioni segrete, come la _Carboneria_ che chiedeva una costituzione dai principi illuministi di libertà e uguaglianza.
+###### MOTI NEL 1820 - 1821
+>*Regno delle 2 Sicilie*: rivolta a Napoli organizzata con l'appoggio di molti ufficiali dell'esercito borbonico (molti avevano aderito alla Carboneria), si diffuse anche a Palermo (fomentata dal separatismo Siciliano), ma venne fermata grazie all'aiuto militare Austriaco
+
+>*Regno di Sardegna*: a Torino si stava organizzando, con l'appoggio dell'erede Carlo Alberto, a convincere il re Vittorio Emanuele I a concedere una costituzione e a dichiarare guerra all'Austria per liberare il Lombardo Veneto, ma Carlo Alberto all'ultimo si tirò indietro e la rivolta venne fermata dal re reggente di quest'ultimo Carlo Felice (fratello di Vittorio Emanuele I)
+
+>*Ducato di Ferrara*: la polizia estense scongiura una rivolta Carbonara ed emette molte condanne a morte. <b>FINEEE</b>
+
+###### MOTI NEL 1830 - 1831
+>*Ducati nell'Italia centrale (Modena e Reggio)*: A capo dei moti ci sono Enrico Misley e Ciro Menotti che inizialmente potevano contare con l'appoggio del duca Francesco IV (che pensava di comandare uno stato italiano del nord se andava a buon fine), ma successivamente si tirò indietro e la rivolta venne fermata dall'esercito Austriaco, e molti rivoltosi vennero condannati a morte.
+
+
+## IDEOLOGIE VOLTE AL RAGGIUNGIMENTO DELL' INDIPENDENZA
+
+_**Mazzini**_: Nel 1827 divenne attivista della Carboneria, guidato dalla sua fede romantica del progresso. Nel 1830 venne arrestato ma un'anno dopo venne liberato e scelse di andare in esilio a Marsiglia dove fondò la **Giovine Italia**.
+
+>Il suo pensiero politico era anche guidato da una forte ispirazione religiosa, infatti secondo lui era nella coscienza del popolo che si manifestava potentemente la volontà di Dio, per questo tutti i popoli hanno il diritto di libertà, e se sono oppressi hanno il sacro santo dovere di riconquistare la loro patria, anche attraverso della rivoluzione.
+
+Il programma della **Giovine Italia** aspirava ad uno stato Italiano indipendente dallo straniero e guidato da una Repubblica, e il suo metodo era totalmente l'opposto dalle organizzazioni segrete come la Carboneria. **La rivoluzione va fatta con il popolo e per il popolo** e per questo era necessario creare principi e valori cardine da propagandare con attività educatrice nei confronti del popolo e con ripetute insurrezioni. Inoltre la sua fede gli faceva credere che ogni popolo aveva la sua missione da compiere, e per l'Italia era giunto il momento di compiere la sua terza missione: *diffondere in Europa l'idea di popoli liberi e pacifici tra di loro* (terza dopo l'impero romano e il cristianesimo).
+
+##### PRIME INSURREZIONI MAZZINIANE
+
+>Nel 1833 fu scoperta una cospirazione attuata sia a Genova che in Piemonte, in cui erano coinvolti anche ufficiali dell'esercito sabaudo. Venne repressa a sangue da Carlo Alberto.
+
+ >Nel 1844 al generale Ramorino furono affidati 4000 franchi per formare una insurrezione che sarebbe dovuta penetrare nel regno di Sardegna dalla Svizzera, ma fu fermata dalla polizia svizzera per l'inettitudine del generale che andò a Parigi a sprecare i franchi in gioco d'azzardo. Tra gli insorti c'era un giovane Garibaldi che dopo questo tentativo fallito dovette fuggire in Sud America.
+
+
+### CAMILLO BENSO CONTE DI CAVOUR
+L'uomo più ricco del regno di Sardegna, venne chiamato a governare per la prima volta da Massimo D'Azeglio come Ministro dell'Agricoltura e del commercio e delle finanze, ma nel 1852 prese il suo posto come Primo Ministro (anche se non era ben visto dalla monarchia)
+
+> Da Primo Ministro fece molte riforme, come un potenziamento degli istituti bancari, incrementò il potere della Banca Nazionale, fece costruire una grande rete ferroviaria (intuendone la potenzialità) ma indebitò pesantemente il paese.
+
+>Per quanto riguarda la politica estera cercava accordi diplomatici per cacciare il dominio Austriaco dall'Italia, e per questo partecipò alla guerra di Crimea (Russia vs Europa) per potersi sedere al tavolo dei negoziati. Cavour si fece amico di Luigi Napoleone (Napoleone III)
+
+##### MOTI DEL 1848
+In tutta Europa si formano dei movimenti volti alla trasformazione delle monarchie in governi costituzionali, e all'unità e indipendenza di molti paesi ancora sottomessi da potenze straniere
+
+>Finalmente le aspirazioni della borghesia coinvolgono anche il popolo, che colpito dalla crisi cercava una nuova strada per modificare la sua posizione sociale ed economica.
+
+>La crisi nel 1845 in Irlanda e successivamente in Europa nel 1846 conosciuta come malattia della patata che colpì la produzione di cereali e aumentò il prezzo degli alimenti, facendo fallire di conseguenza le fabbriche per l'aumento dei prezzi.
+
+Ci furono rivolte in tutta Europa, per esempio in Francia dove si affermò la seconda repubblica (destinata a durare poco) e in Italia il regno di Sardegna emanò lo ***Statuto Albertino***.
+Anche nel Lombardo Veneto ci furono molti movimenti, e le città di Venezia e Milano proclamarono la Repubblica di San Marco e la Repubblica di Milano. La risposta Austriaca, guidata dal maresciallo Radetzky, non si fece attendere, ma alla fine le forze austriache furono cacciate.
+Inoltre anche la Sicilia ottenne l'indipendenza dai Borboni, proclamando la repubblica.
+
+#### PRIMA GUERRA D'INDIPENDENZA
+
+Viste  le difficoltà degli Austriaci, Milano e Venezia chiesero subito aiuto a Carlo Alberto. Siccome l'Austria era una delle potenze più forti d'Europa molti stati italiani si unirono alla guerra, inviando il loro eserciti in Piemonte. Non conoscendo bene le terre lombarde, Carlo Alberto fece attendere una settimana prima di iniziare l'invasione, dando il tempo a Radetzky di rifugiarsi nel ***Quadrilatero***
+```
+Quadrilatero: un'area strategica con 4 fortezze (Pescheria, Verona, Legnago, Mantova), protetta a nord dalle alpi e dal lago di Garda, a sud dal fiume Pò, e ai lati dai fiumi Mincio e Adige
+```
+Le prime azioni militari furono un successo e i piemontesi vinsero a Goito e Pastrengo, conquistando la prima fortezza: Pescheria, ma vennero finalmente fermati a Santa Lucia. Intanto i rinforzi austriaci stavano riconquistando tutto il lombardo veneto, tranne Venezia che resisterà altri 3 mesi.
+
+Papa Pio XI inizialmente si unì alla guerra (sperando in una confederazione di stati guidati dal Papa) ma rendendosi conto che stata per attaccare uno stato cattolico si tirò indietro, ordinando anche al regno borbonico di fermare l'esercito, e così pure agli altri stati.
+
+Ricevuti i rinforzi Radetzky avanzò verso Custoza (il punto del fronte piemontese più debole), e sconfisse a luglio Carlo Alberto, che fu costretto a chiedere l'armistizio di Salasco. Garibaldi invece, che aveva provato una offensiva sulle alpi con dei volontari, fu costretto a fuggire in Svizzera
+
+##### RISCOSSA DEMOCRATICA
+
+Le repubbliche di San Marco e di Sicilia resistevano ancora, così cominciarono agitazioni popolari anche a Firenze e Roma. Il granduca di Toscana e il Papa decisero di abbandonare le città rifugiandosi nel regno di Ferdinando II, che intanto si stava preparando a risolvere la situazione siciliana.
+
+A Roma in assenza del Papa, un nuovo parlamento eletto a suffragio universale decretò la fine del potere temporale e proclamò la Repubblica (9 febbraio 1849), ***affidando temporaneamente il potere ad un triumvirato*** (Mazzini, Saffi e Carmellini) con l'obbiettivo di ottenere un riconoscimento internazionale da parte delle potenze straniere. Intanto erano arrivati anche Garibaldi e Mameli in difesa della neonata repubblica
+##### REPRESSIONE DELLE RIVOLTE
+
+Carlo Alberto ci provò di nuovo fallendo miseramente contro Radetzky che riuscì ad entrare in Piemonte e sconfiggerlo a Novara. Per salvare la monarchia Carlo Alberto dovette abdicare a favore di suo figlio: Vittorio Emanuele II che chiese subito l'armistizio di Vignale (pagando tutti i debiti di guerra). Anche il regno di SIcilia cadde, e ritornò al regno dei Borboni.
+
+***NUOVO GIOCO: CONQUISTA ROMA!*** *(Organizzato da Papa Pio IX)*
+
+- Primo Partecipante: **Francia**: 30 aprile - respinta da Garibaldi
+- Secondo Partecipante: **Regno delle 2 Sicilie**: 9 maggio - respinta da Garibaldi
+- Terzo Partecipante: **Austria**: 1/25 maggio (tentarono una marcia su Roma)
+- Quarto Partecipante: **Spagna**: manco c'arriva alla fine.
+
+Il lavoro di diplomazia di Mazzini era fallito, e Luigi Napoleone, vedendo l'inarrestabile armata Austriaca arrivare a Roma, ordinò l'assalto definitivo che durò un mese. Mameli fu ferito, e morì pochi giorni dopo, così come la repubblica che fu costretta alla resa. Mazzini tornò in esilio, Garibaldi fuggì e il Pio IX pote tornare a Roma
+
+Ancora mancava Venezia che resisteva, ma venne abbattuta pochi  mesi dopo da Radetzky
+
+#### FINE PRIMA GUERRA D'INDIPENDENZA
