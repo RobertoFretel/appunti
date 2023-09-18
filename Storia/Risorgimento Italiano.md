@@ -31,6 +31,8 @@ Il programma della **Giovine Italia** aspirava ad uno stato Italiano indipendent
 ### CAMILLO BENSO CONTE DI CAVOUR
 L'uomo più ricco del regno di Sardegna, venne chiamato a governare per la prima volta da Massimo D'Azeglio come Ministro dell'Agricoltura e del commercio e delle finanze, ma nel 1852 prese il suo posto come Primo Ministro (anche se non era ben visto dalla monarchia)
 
+- Liberale moderato  -> il progresso politico doveva andare di pari passo con il progresso economico, per questo fece molte riforme
+
 > Da Primo Ministro fece molte riforme, come un potenziamento degli istituti bancari, incrementò il potere della Banca Nazionale, fece costruire una grande rete ferroviaria (intuendone la potenzialità) ma indebitò pesantemente il paese.
 
 >Per quanto riguarda la politica estera cercava accordi diplomatici per cacciare il dominio Austriaco dall'Italia, e per questo partecipò alla guerra di Crimea (Russia vs Europa) per potersi sedere al tavolo dei negoziati. Cavour si fece amico di Luigi Napoleone (Napoleone III)
@@ -79,4 +81,26 @@ Il lavoro di diplomazia di Mazzini era fallito, e Luigi Napoleone, vedendo l'ina
 Ancora mancava Venezia che resisteva, ma venne abbattuta pochi  mesi dopo da Radetzky
 
 #### FINE PRIMA GUERRA D'INDIPENDENZA
-SIUMMEEE
+
+Dal 1852 Camillo Benso conte di Cavour diventò primo ministro del Piemonte, e durante i trattati di pace della guerra di Crimea fece notare tutti la situazione italiana, ponendo le basi per una alleanza con Napoleone III, che voleva ridurre il potere austriaco.
+
+##### PIANO GENIALE
+La Francia si impegnò ad aiutare militarmente il Piemonte, e si sarebbe creato un regno dell'Italia del Nord, mentre che al centro si sarebbe formato un regno con un sovrano di fiducia. il sud invece sarebbe rimasto ai Borboni e roma sarebbe rimasta al Papa. In cambio dell'aiuto, il regno di Sardegna avrebbe dovuto cedere la Savoia (spiace per Vittorio Emanuele II) e Nizza (spiace per Garibaldi).
+
+Nel luglio 1858 fecero l'accordo segretamente a Plombiers, e per non sembrare un cattivone, Napoleone III sarebbe intervenuto solo se ad attaccare fosse stata l'Austria, così Cavour decise di stuzzicarli, prima con un discorso di Vittorio Emanuele II dove affermava di non esser indifferente alle richieste di aiuto degli italiani del Lombardo Veneto, e successione con una esercitazione miliare al confine.
+
+Gli austriaci abboccarono e dichiararono guerra il 26 aprile 1859.
+
+### SECONDA GUERRA D'INDIPENDENZA
+
+Napoleone assunse il controllo delle spedizioni militari e vinse gli austriaci a Magenta, mentre che i piemontesi vinsero in Lombardia a Solferino e San Martino. sembrava tutto fatto, ma improvvisamente Napoleone III firmò l'armistizio di Villafranca, dove lasciava il Veneto all'Austria, mentre che la Lombardia al Piemonte, e firmò per le numerose perdite e perché i territori del centro Italia volevano annettersi al regno di Sardegna.
+
+#### LA SPEDIZIONE DEI MILLE
+
+I democratici erano in fermento, il desiderio di liberare il regno delle 2 Sicilie era forte, e per questo Garibaldi arruolò un esercito da tutta Italia e partì con due navi a Quarto con i suoi *mille* protetti dalla marina inglese.
+
+> Vinsero tutte gli scontri in Sicilia, e man mano che la liberavano andavano arruolando sempre più volontari promettendo le terre tolte alla chiesa e l'abolizione della tassa sul macinato, ma di certo non poteva farsi nemici borghesi e proprietari terrieri, così represse tutte le illegalità e rivolte contadine, arrivando a fucilarne 5.
+
+Garibaldi vinse quasi tutte le battaglie e quasi senza combattere entro a Napoli il 7 settembre 1860. Cavour nel frattempo non era molto contento, si ricordava perfettamente che aveva partecipato alla rivolta Mazziniana di Genova, e che era un fervente repubblicano, e oltre a quello temeva che Garibaldi si sarebbe spinto fino allo stato pontificio causando inevitabilmente l'intervento francese.
+
+Con il consenso di Napoleone III Cavour invase Umbria e Marche, per poi cedere il comando a Vittorio Emanuele II, che scese fino al sud a bloccare Garibaldi. Il re e il generale si incontrarono a Teano (Caserta), dove Garibaldi rinunciò ad ogni potere e consegnò tutte le terre al re.
