@@ -104,3 +104,17 @@ I democratici erano in fermento, il desiderio di liberare il regno delle 2 Sicil
 Garibaldi vinse quasi tutte le battaglie e quasi senza combattere entro a Napoli il 7 settembre 1860. Cavour nel frattempo non era molto contento, si ricordava perfettamente che aveva partecipato alla rivolta Mazziniana di Genova, e che era un fervente repubblicano, e oltre a quello temeva che Garibaldi si sarebbe spinto fino allo stato pontificio causando inevitabilmente l'intervento francese.
 
 Con il consenso di Napoleone III Cavour invase Umbria e Marche, per poi cedere il comando a Vittorio Emanuele II, che scese fino al sud a bloccare Garibaldi. Il re e il generale si incontrarono a Teano (Caserta), dove Garibaldi rinunciò ad ogni potere e consegnò tutte le terre al re.
+
+A questo punto il regno di Sardegna (che successivamente andrà a chiamarsi regno di Italia) comprendeva quasi tutta la penisola, mancavano solo Trento, Trieste (toccherà aspettare fino alla Prima Guerra Mondiale), Veneto e ***Roma*** da molti considerata la capitale naturale del regno, anche se però, essendo protetta dai Francesi non poteva essere conquistata.
+
+### PROBLEMI DELL'UNITÀ
+-  La lingua italiana era parlata solo dai più colti, la maggior parte delle persone parlava solo dialetto
+- Il governo piemontese estese la sua costituzione: Lo Statuto Albertino a tutto il regno, anche se per esempio la costituzione toscana era più avanzata e moderna.
+- Il regno venne diviso in provincie, controllato da prefetti, che nella maggior parte erano piemontesi
+- L'italia era un paese povero e arretrato, e per modernizzarlo furono aumentate le tasse, gravando sui ceti poveri, che tra l'altro non avevano manco il diritto di voto (riservato solo ai maschi provvisti di un reddito alto)
+- L'industria era molto lontana dai livelli di altri paesi europei, e si concentrava solo nelle regioni del nord, mentre che al sud era ancora forte la presenza dei latifondisti.
+- Lo stato era pieno di debiti, o che aveva accollato dalla annessione dei piccoli stati, o di guerra. Inoltre promulgò la leva obbligatoria per 7 anni, legge che divenne subito impopolare sopratutto al sud, dove le mani giovani servivano tanto per lavorare, rendendo le famiglie sempre più povere.
+
+### TERZA GUERRA D'INDIPENDENZA
+
+La Prussia c'aveva voglia de mostra quanto era forte, così insieme all'Italia decise di affrontare l'Austria. Le offensive italiane subirono pesanti sconfitte a Custoza, e per mare a Lissa, mentre che ai Prussiani andò molto bene costringendo l'Austria alla resa dopo la prima vittoria a Sadowa, non dando tempo però all'Italia di annettere Trento e Trieste. In verità Garibaldi era molto vicino a Trento, ma per ordine del re dovette fermarsi (non toccava farsi nemica la Prussia per nessun motivo), e il generale rammaricato rispose con una sola parola: ***obbedisco***
