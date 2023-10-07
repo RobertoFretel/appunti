@@ -1,8 +1,12 @@
+#### Articolo di Madame de Stael e divisione degli intellettuali
+
 **1816** - Madame de Stael pubblica sulla _"Biblioteca Italiana"_ un articolo intitolato - ***Sulla maniera e l'utilità delle traduzioni*** - dove deprecava la decadenza della cultura italiana contemporanea, invitando gli italiani ad uscire dal loro culto del passato, aprendosi a correnti letterarie dell'Europa moderna. Ciò divise gli intellettuali italiani in 2 gruppi.
 
 >I Classicisti insorsero in difesa delle glorie nazionali e dei principi sacri dell'arte classica. Tra gli intellettuali classicisti ci sono: **Pietro Giordani, Carlo Londonio, Carlo Botta**, i quali ribadirono le qualità e la perfezione dei principi classici, e di come questi fossero degni di perenne imitazione, e in aggiunta sostenevano come **il senso del bello e dell'armonia fosse proprio dei latini** e per questo solo gli italiani ce lo avevano, mentre che al Nord Europa era molto presente **una visione tenebrosa della vita e un gusto dell'orrido propri del Romanticismo**.
 
 >I Romantici erano più aperti all'innovazione, e in difesa dell'articolo pubblicato da Madame de Stael pubblicarono numerosi saggi e opuscoli, oggi definiti **Manifesti del Romanticismo**.Nel 1818 un gruppo di intellettuali formati da Pellico, Borsieri, Di Breme e Visconti formarono ***Il Conciliatore***, che doveva diventare il **portavoce delle nuove idee letterarie, e cognizioni scientifiche volte allo sviluppo economico** della Lombardia.
+
+#### Tematiche dei romantici lombardi
 
 In opposizione ai classicisti, i romantici volevano una cultura moderna, rivolta non solo alla scarsa elité di letterati, ma anche al popolo (ceto medio). Per questo la mitologia classica non poteva più andar bene, ma servivano argomenti contemporanei che riuscissero a attrarre l'attenzione del popolo. Servivano anche forme letterarie nuove e un linguaggio adatti a comunicare in modo efficace i nuovi argomenti.
 
